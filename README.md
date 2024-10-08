@@ -1,5 +1,3 @@
-CAN YOU WORK !!!!!! please ... please make this work github im sotired.
-
 IT WORKEEEEEEEEEEEEEEEEEEEED!!!!! YYAYYY
 
 ![](https://static.wikia.nocookie.net/gensin-impact/images/7/77/TPRGT_Sprite_Lumine_Wave.png/revision/latest?cb=20230715012242)
