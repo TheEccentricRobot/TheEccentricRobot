@@ -8,6 +8,4 @@ please be friends w me im bad at interactng ....... :(
 
 ![](https://static.wikia.nocookie.net/gensin-impact/images/3/31/NALG_Lumine_2.gif/revision/latest?cb=20220505051712)
 
-v- she doesnt know how to think. she doesnt have a single braincell. 
-
-![](https://static.wikia.nocookie.net/gensin-impact/images/5/5e/Savoring_the_Breeze_Thinking_Lumine.gif/revision/latest?cb=20240502184737)
+she doesnt know how to think. she doesnt have a single braincell. 
