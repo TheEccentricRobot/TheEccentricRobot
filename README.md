@@ -2,8 +2,8 @@
 
 HI ill .. edit this later probably. i am fri! spelled like free >.o I go by he/she/it cus im pronounfluid and i am a latina !!! yay.
 
-![](https://files.catbox.moe/abbsb2.png) 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![https://rentry.co/fri](https://files.catbox.moe/q2ei3h.png)![https://friself.straw.page/](https://files.catbox.moe/39q5n3.png)![https://biolovenescent.straw.page/](https://files.catbox.moe/n2rkd2.png)![https://rentry.co/friurls](https://files.catbox.moe/g5xsp0.png)
+![](https://files.catbox.moe/abbsb2.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://files.catbox.moe/q2ei3h.png)](https://rentry.co/fri) ![https://friself.straw.page/](https://files.catbox.moe/39q5n3.png)![https://biolovenescent.straw.page/](https://files.catbox.moe/n2rkd2.png)![https://rentry.co/friurls](https://files.catbox.moe/g5xsp0.png)
 
 stamp stash
 ![](https://files.catbox.moe/v2nem8.png) 
