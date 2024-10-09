@@ -1,4 +1,5 @@
 ![](https://files.catbox.moe/2fm5io.png)
+![](https://files.catbox.moe/dgwnbu.png)
 
 HI ill .. edit this later probably. i am fri! spelled like free >.o I go by he/she/it cus im pronounfluid and i am a latina !!! yay.
 
