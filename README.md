@@ -4,4 +4,4 @@ HI ill .. edit this later probably. i am fri! spelled like free >.o I go by he/s
 
 please be friends w me im bad at interactng ....... :(
 
-![](https://files.catbox.moe/1a811a.png) 
+![](https://files.catbox.moe/tclte1.png) 
