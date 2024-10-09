@@ -1,15 +1,14 @@
-![](https://files.catbox.moe/2fm5io.png)
-![](https://files.catbox.moe/dgwnbu.png)
+![](https://files.catbox.moe/c6lw1v.png)
 
 HI ill .. edit this later probably. i am fri! spelled like free >.o I go by he/she/it cus im pronounfluid and i am a latina !!! yay.
 
-![](https://files.catbox.moe/dr8zzn.png) 
+![](https://files.catbox.moe/abbsb2.png) 
 
 stamp stash
-![](https://files.catbox.moe/qaq9ws.png) 
+![](https://files.catbox.moe/v2nem8.png) 
 
 please be friends w me im bad at interactng ....... :(
 
-![](https://files.catbox.moe/ohx4w7.png) 
+![](https://files.catbox.moe/qnyy8y.png) 
 
-![](https://files.catbox.moe/tclte1.png) 
+![](https://files.catbox.moe/vx1nx0.png) 
