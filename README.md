@@ -1,16 +1,9 @@
-![](https://files.catbox.moe/c6lw1v.png)
-
-#### <p align="center"> [![](https://files.catbox.moe/inncrb.png)](https://rentry.co/samestation)
-#### <p align="center"> [![](https://files.catbox.moe/q2ei3h.png)](https://rentry.co/fri) [![](https://files.catbox.moe/39q5n3.png)](https://friself.straw.page/) [![](https://files.catbox.moe/n2rkd2.png)](https://biolovenescent.straw.page/)
-#### <p align="center"> [![](https://files.catbox.moe/g5xsp0.png)](https://rentry.co/friurls) [![](https://files.catbox.moe/y416yx.png)](https://fri.atabook.org/) [![](https://files.catbox.moe/qgksr5.png)](https://rentry.co/ptowner)
-
-![](https://files.catbox.moe/abbsb2.png)
-#### <p align="center"> Is there something you should say
-
-#### <p align="center"> That I don't wanna know?
-
-#### <p align="center"> Trying to remain composed
-
-#### <p align="center"> While asking me to go.
-
-![](https://files.catbox.moe/vx1nx0.png) 
+#### <p align="center"> ![](https://files.catbox.moe/klmm65.png)
+#### <p align="center">透き通る 花びらに唇を
+#### <p align="center">寄せてはこちらを向いて
+#### <p align="center">春のような微笑み
+#### <p align="center"> ![](https://files.catbox.moe/d02xk2.png)
+#### <p align="center">[![](https://files.catbox.moe/5h14fn.png)](https://rentry.co/samestation)[![](https://files.catbox.moe/jkrboy.png)](https://rentry.co/fri)[![](https://files.catbox.moe/cm0vjd.png)](https://fri.atabook.org/)
+#### <p align="center">[![](https://files.catbox.moe/l2autq.png)](https://biolovenescent.straw.page/)[![](https://files.catbox.moe/iit9bz.png)](https://rentry.co/friurls)[![](https://files.catbox.moe/cubris.png)](https://friself.straw.page/)
+#### <p align="center">[![](https://files.catbox.moe/7uiu71.png)](https://rentry.co/ptowner)
+#### <p align="center"> ![](https://files.catbox.moe/7h19yz.png)
