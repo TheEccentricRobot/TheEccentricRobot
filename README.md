@@ -1,4 +1,4 @@
-#### <p align="center"> ![](https://files.catbox.moe/klmm65.png)
+#### <p align="center"> ![](https://files.catbox.moe/esw0fj.png)
 #### <p align="center">透き通る 花びらに唇を
 #### <p align="center">寄せてはこちらを向いて
 #### <p align="center">春のような微笑み
