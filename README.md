@@ -60,4 +60,4 @@ not only that, there's also the soap bottle here! the way the artist painted mak
 overall this art is really good for practicing color theory and textures/materials!! 
 
 here's some stuff i drew, too : 3
-<p align="center"> ![](https://files.catbox.moe/go8hpf.png)
+#### <p align="center"> ![](https://files.catbox.moe/go8hpf.png)
