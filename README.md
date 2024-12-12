@@ -4,19 +4,14 @@
 #### <p align="center">[pronouns cc](https://pronouns.cc/@nightic)  ❀   @friself on disc  ❀  [pt info](https://rentry.co/ptowner)  ❀  [spotify](https://open.spotify.com/user/31ajix25v2i4pz3etbcs3ve3rsmm?si=a6583ce8b4a94830)  ❀  [pinterest](https://pin.it/3agjiw2iX)  ❀  [strawpage](https://friself.straw.page/)
 
 #### <p align="center"> ![](https://files.catbox.moe/m5m3yv.png)
-ㅤ    
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
-  ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+
 hi chat this is me teaching some art stuff to my friend mafuyu. felt like letting this stay here cus i personally find it cool and i think it might help other people!! ^_^
 12/12/24
   ㅤ
