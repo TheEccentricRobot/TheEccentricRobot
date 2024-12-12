@@ -28,7 +28,8 @@ so firstly u just like. make a tab on pinterest of arts you personally like and 
 
 nowww that you did your tab, try finding something that is present in all arts youve saved! for me its the choice of different colors for contrast
 this one for example..
-![](https://i.pinimg.com/736x/e8/46/2a/e8462ad23d7b166010602ca2c91856ef.jpg) art by re_japhers on insta!! ))
+![](https://i.pinimg.com/736x/e8/46/2a/e8462ad23d7b166010602ca2c91856ef.jpg)
+#### <p align="center"> **art by re_japhers on insta!!**
 
 the artist used blue as a background color and yellow as the main character color, cause theyre opposite colors!
 in other words, using them together can be a good combo cause you can use them for contrast  : 3
@@ -46,7 +47,8 @@ let me take a example.
  if you have seen art studies, you might have noticed how people try to "copy" the original art.
  thats a method of studying !! you can understand  why an artist used these specific colors, if theres any meaning behind the art, what theyre trying to make you feel, among other things : 3.
 
-![](https://i.pinimg.com/736x/c6/86/14/c68614f5901c929796c4cf50b425bf1c.jpg) art by alaiganuza on insta btw))
+![](https://i.pinimg.com/736x/c6/86/14/c68614f5901c929796c4cf50b425bf1c.jpg)
+#### <p align="center"> **art by alaiganuza on insta!**
 
 as you can see, in this art here there's a splash of colors !! theres a lot of them, which makes the art sort of ??? pop off??? idk the word. it makes it feel more alive, if thats a way to put it...
 you can see how theres like. minimum change in colors here in the sink but you can see its form : 3
