@@ -44,7 +44,7 @@ another good thing for evolving/developing your artstyle is art studies ! theyre
 
 let me take a example.
  example !! 
- if you have seen art studies, you might have noticed how people try to "copy" the original art.
+ if you have seen art studies, you might have noticed how people try to "copy" (although they're not taking the art ass theirs, and yes recreating for learning objectives) the original art.
  thats a method of studying !! you can understand  why an artist used these specific colors, if theres any meaning behind the art, what theyre trying to make you feel, among other things : 3.
 
 #### <p align="center"> ![](https://i.pinimg.com/736x/c6/86/14/c68614f5901c929796c4cf50b425bf1c.jpg)
