@@ -22,8 +22,8 @@ hi chat this is me teaching some art stuff to my friend mafuyu. felt like lettin
 ㅤ
 ㅤ
 ㅤ
-OK so . remember im not like.  a professional or anythign this is just personal tips
-i believe hte first thing for training art is finding inspiration/motivation
+OK so . remember im not like.  a professional or anythign this is just personal tips.
+i believe hte first thing for training art is finding inspiration/motivation!
 so firstly u just like. make a tab on pinterest of arts you personally like and want to somehow personificate them on your art : 3
 
 nowww that you did your tab, try finding something that is present in all arts youve saved! for me its the choice of different colors for contrast
