@@ -29,6 +29,7 @@ so firstly u just like. make a tab on pinterest of arts you personally like and 
 nowww that you did your tab, try finding something that is present in all arts youve saved! for me its the choice of different colors for contrast
 this one for example..
 ![](https://i.pinimg.com/736x/e8/46/2a/e8462ad23d7b166010602ca2c91856ef.jpg) art by re_japhers on insta!! ))
+
 the artist used blue as a background color and yellow as the main character color, cause theyre opposite colors!
 in other words, using them together can be a good combo cause you can use them for contrast  : 3
 see how yellow seems to get the most attention? cause its the opposite of blue!
