@@ -37,7 +37,7 @@ see how yellow seems to get the most attention? cause its the opposite of blue!
 thats part of the color theory btw!
 in this case its complementary colors . i said opposite cause i forgot the name LOL
 
-when studying color theory you'll always see this wheel, as its important : 3
+when studying color theory you'll always see the basic color wheel (RBY, RBG, among others), as its important : 3
 thats the thing that defines the types of color wheels basically.
 okay so now 
 another good thing for evolving/developing your artstyle is art studies ! theyre really fun and good for you
